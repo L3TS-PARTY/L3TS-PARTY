@@ -3,7 +3,7 @@ $${\color{#FF60BB}" \space wheres \space my \space beak \space ? \space lodged \
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ipmuhokratm1uxdrm3j975g6y&cover_image=true&theme=novatorem&show_offline=false&background_color=ffd500&interchange=false&profanity=false&bar_color=f2509e&bar_color_cover=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ipmuhokratm1uxdrm3j975g6y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=f2509e&bar_color_cover=false">
   </a>
 </p>
 
