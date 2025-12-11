@@ -15,19 +15,19 @@ $${\color{#FF60BB}" \space wheres \space my \space beak \space ? \space lodged \
 <img src="https://dividers.crd.co/assets/images/gallery02/d08b8af0.png?v=05d33f91" width="500">
 
 <p align="center">
-<img src="https://64.media.tumblr.com/8e397fab9a41e1f00016917a0867e1b2/408b2d36fe8fb6b1-57/s75x75_c1/fcdca19e3d06e95932570fcb1f7d99a8639cacdd.gifv">
+<img src="https://i.postimg.cc/ydzkfyxM/3813a89b5911bcc41b414789d14d4e66f88f9aba.gif">
 
 <p align="center">
-13 (turning 14) 
+$${\color{#FFDA60}call \space me \space via, \space chica, \space or \space chance}$$
 
 <p align="center">
-<img src="https://64.media.tumblr.com/1049811c8fe338af1ae95bbeb439c65a/c0bf2a03c82c8f9c-99/s75x75_c1/624527081a882900efc1d082d568abd3f3851bb3.gifv">
+<img src="https://pixels.crd.co/assets/images/gallery30/b3d63e35.gif?v=29416114">
 
   <p align="center">
-any  pronouns
+$${\color{#FFDA60}any \space pronouns}$$
 
 <p align="center">
-<img src="https://pixels.crd.co/assets/images/gallery02/18f9b089.gif?v=29416114">
+<img src="https://64.media.tumblr.com/9368063a4f1cc798394a9301beb0e7ab/85be7fad212ea0ae-38/s75x75_c1/0e432b2e5be34460a706535d838459ee38f94eae.gif">
   
   <p align="center">
- dark/proshippers dni / hazbin hotel fandom iwecuf
+ $${\color{#FFDA60}interact \space with \space caution \space at \space all \space times. \space do \space not \space randomly \space cuddle \space me \space if \space i \space dont \space know \space you.}$$
