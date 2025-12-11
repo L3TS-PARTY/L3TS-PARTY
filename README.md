@@ -1,5 +1,5 @@
 <p align="center">
-❛❛ wheres my beak ? lodged in your forehead , of course .❜❜
+$${\color{#FF60BB}" \space wheres \space my \space beak \space ? \space lodged \space in \space your \space forehead \space , \space of \space course . \space "}$$
 
 <p align="center">
 <img src="https://dividers.crd.co/assets/images/gallery02/d08b8af0.png?v=05d33f91" width="500">
