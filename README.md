@@ -1,18 +1,19 @@
 <p align="center">
-"That's it, Bambi, walk away!"
+❛❛ wheres my beak ? lodged in your forehead , of course .❜❜
 
 <p align="center">
-<img src="https://64.media.tumblr.com/64239291985a3aee495a6117b9168b93/d083df8da3513e0a-0c/s500x750/694ded5256a9cfb4f662ed4d2d4928ee06016ddf.gifv">
+<img src="https://dividers.crd.co/assets/images/gallery02/d08b8af0.png?v=05d33f91" width="500">
 
 <p align="center">
-<img src="https://external-media.spacehey.net/media/sWukntuXVMEJCtACusc8ev8dXiwcBcxdwt6iWzxN2R2M=/https://i.postimg.cc/65yq4Zwq/Untitled6-20240208002127.png"><img src="https://external-media.spacehey.net/media/slh-nE4wb6gRKUHuRnQlHhhwNcp-WE-RW-U7glf8KueM=/https://i.postimg.cc/L6Y48MBZ/Untitled8-20240128160110-1-2.gif">
+<img src="https://64.media.tumblr.com/0efb007ab5d81ca367821cb9b9cdc303/4d6a1acf743943b0-e6/s100x200/5a959e832bac01209539f8444c8979f8fc0ac36f.gifv"><img src="https://64.media.tumblr.com/1c346b49e277cf47de6d3cd091ac6e26/4d6a1acf743943b0-d6/s250x250_c1/b0d246bef5d982e7a00d439d462059760d7ca734.gifv"><img src="https://64.media.tumblr.com/aaa8921a07fd12fc1e077cb17eb15196/4d6a1acf743943b0-c5/s100x200/883e865ea4e31028fe4b8a71030823cf863079fa.gifv">
 
 <p align="center">
-<img src="https://i.pinimg.com/1200x/24/93/61/249361fbd2206f42ed17d3de096392b1.jpg" width="200">
+<img src="https://i.pinimg.com/736x/fc/97/39/fc973992e56c54cfc6010079217b40c6.jpg" width="200">
 
 <p align="center">
-<img src="https://64.media.tumblr.com/64239291985a3aee495a6117b9168b93/d083df8da3513e0a-0c/s500x750/694ded5256a9cfb4f662ed4d2d4928ee06016ddf.gifv">
-  
+<p align="center">
+<img src="https://dividers.crd.co/assets/images/gallery02/d08b8af0.png?v=05d33f91" width="500">
+
 <p align="center">
 <img src="https://64.media.tumblr.com/8e397fab9a41e1f00016917a0867e1b2/408b2d36fe8fb6b1-57/s75x75_c1/fcdca19e3d06e95932570fcb1f7d99a8639cacdd.gifv">
 
