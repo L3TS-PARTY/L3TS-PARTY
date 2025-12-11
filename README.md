@@ -1,5 +1,5 @@
 <p align="center">
-"That's it, Bambi, walk away!"
+"That's it, Bambi, walk away!" 
 
 <p align="center">
 <img src="https://64.media.tumblr.com/64239291985a3aee495a6117b9168b93/d083df8da3513e0a-0c/s500x750/694ded5256a9cfb4f662ed4d2d4928ee06016ddf.gifv">
