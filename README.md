@@ -24,7 +24,7 @@ $${\color{#FF60BB}" \space wheres \space my \space beak \space ? \space lodged \
 <img src="https://i.postimg.cc/ydzkfyxM/3813a89b5911bcc41b414789d14d4e66f88f9aba.gif">
 
 <p align="center">
-$${\color{#FFDA60}call \space me \space via, \space chica, \space or \space chance}$$
+$${\color{#FFDA60}call \space me \space via, \space chica, \space or \space chance \space more \space names \space on \space prns \space page}$$
 
 <p align="center">
 <img src="https://pixels.crd.co/assets/images/gallery30/b3d63e35.gif?v=29416114">
